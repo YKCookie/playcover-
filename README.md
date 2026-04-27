@@ -9,4 +9,4 @@ https://my.feishu.cn/docx/C3GadrZy5ol7kGxcmN8czoWdnGW
 https://my.feishu.cn/wiki/MQFswGawUi6htwkCZW0cz8GWnTg?from=from_copylink   密码：2&69c481
 
 如果以上教程和方法对您有帮助，可以请我喝杯瑞幸咖啡，爱喝生椰拿铁❤️
-![alt text]{:height="50%" width="50%"}(9c568202755fcd581caa6a53646404e1.jpg)
+![alt text](9c568202755fcd581caa6a53646404e1.jpg)
